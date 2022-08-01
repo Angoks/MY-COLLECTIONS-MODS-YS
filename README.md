@@ -1,6 +1,6 @@
 # MY-COLLECTIONS-MODS-YS
 NO REUPLOAD PLISSS
 
-https://i.ibb.co/PCnwcXh/Screenshot-2022-08-01-151814.png
+![alt text](https://i.ibb.co/PCnwcXh/Screenshot-2022-08-01-151814.png)
 
 PASSWORD HINT: MY REAL NAME (YOU CAN SEARCH IT ON MY SOCIAL MEDIA)
